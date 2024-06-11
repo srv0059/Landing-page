@@ -1,1 +1,1 @@
-This is my Landing Page projects from my inntership Octanet Services Pvt. Ltd.
+This is my Landing Page projects from my internship Octanet Services Pvt. Ltd.
